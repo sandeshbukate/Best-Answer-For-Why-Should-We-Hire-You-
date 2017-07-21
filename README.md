@@ -1,0 +1,2 @@
+# Best-Answer-For-Why-Should-We-Hire-You-
+ There are many job vacancies for freshers, so be prepared to face the job interview with different kinds of question. One of the very common question is Why should we hire you? For answering this question you need to understand the basic need of the employer, job profile, your skills and then give a diplomatic answer with respect to the benefit of the company.
